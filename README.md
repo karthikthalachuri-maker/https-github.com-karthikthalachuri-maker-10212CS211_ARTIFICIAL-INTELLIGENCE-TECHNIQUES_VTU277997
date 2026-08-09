@@ -1,0 +1,2 @@
+# https-github.com-karthikthalachuri-maker-10212CS211_ARTIFICIAL-INTELLIGENCE-TECHNIQUES_VTU277997
+https://github.com/karthikthalachuri-maker/10212CS211_ARTIFICIAL-INTELLIGENCE-TECHNIQUES_VTU277997
